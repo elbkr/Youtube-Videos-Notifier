@@ -15,4 +15,4 @@
 
 ## Result
 
-![](https://cdn.discordapp.com/attachments/773221397928869888/825110546760204298/preview.gif)
+![](https://cdn.discordapp.com/attachments/773221397928869888/825114748759834703/unknown.png)
